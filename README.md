@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **hritikrazz39@gmail.com**
 
-- ⚡ Fun fact **I think I am funny but I am gay**
+- ⚡ Fun fact **I think I am funny but I am proud member of Pride month**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
